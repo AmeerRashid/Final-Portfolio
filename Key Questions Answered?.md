@@ -9,3 +9,5 @@ Dr. Kamash discusses this in her article about the Palmyra Arch that was 3D prin
 
 Digital history is not the digitization of 'real life' history. It is the creation of history. I just figured this out as I type it. Critical making is what we have been doing all semester. We have taken something that we deemed important and we chose to make it into something else. That historical object is not being affected in any way, but our creations begin their own lives. With each module we stray further from the original, but it is still from the same model that we used in our first module. We are simply adding to its life as a piece of history. History cannot be reconstructed, but it can be used to create new things that will have their own stories to tell. Our modules are just a timeline of the history of one object. My mind is blown right now. 
 
+https://github.com/AmeerRashid/Module1-
+
