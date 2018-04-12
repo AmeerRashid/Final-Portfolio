@@ -15,3 +15,8 @@ https://github.com/AmeerRashid/Module2
 
 https://github.com/AmeerRashid/Module3
 
+https://github.com/AmeerRashid/Module4
+
+This is history! You can see exactly how the object changes and why it does. There are time stamps and context. We made history to understand history. That's crazy to me. 
+
+In short, digital history means reincarnation. It has a past because everything comes from something, but now it can begin a new life and tell new stories as it matures from exposure to the web and interactions with other creations. 
